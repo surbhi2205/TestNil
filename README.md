@@ -1,3 +1,5 @@
+FLDP Notes:
+
 One on ones Template:
 
 Sample Questions to ask:
@@ -104,6 +106,30 @@ Questions:
 What could you try doing differently in order to move past the current reality?
 Note: Ask future-oriented questions about actions and behaviours that the employee hasn't tried yet.
 Way Forward: Identify actions that the employee might be willing to own and take.
+
+Example: So it is about.., I am also hearing....I don't have a lot of time, but what would be most valuable for you to walk away from this conversation..
+Lets 'spend some time to identify the current state and then we could brain storm some way, tell me little bit of what is happening currently, ask follow up questions as well,
+Sounds like, tehre is something about acknowledged that makes you feel appreciated,
+
+Tell me how you are engaging when you interact?
+
+Tell me how your voice quality is?
+
+How do you know that you are heard?
+
+We can't necessaily decide how they wil respond, but we could explore how you could experiment your tsrengths and influence a different behaviour?
+What are the things that you can experiment from your strengths? What are the things that you could practice to get better at?
+
+If there is someone at the team that you see gets heard more, is there anything you could learn from them?
+How would you do that?
+
+I am hearing two things that you might want to practice: 
+
+How can I support you?
+
+
+
+
 
 +Coaching Sample Questions:
 What do you think went well in that project? What would you do differently next time?
